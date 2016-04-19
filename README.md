@@ -1,6 +1,2 @@
-# hello-world
-First program on github
-
-I'm kinda proud of my self on Github, i hope i can make friends here =.=
-Going to merge it the second time, wish me luck!
-GOOD LUCK 
+Jason Wang was here, and he has killed 4 billion people becasue they saw his face, eewwwwww. jk
+i just joking 
